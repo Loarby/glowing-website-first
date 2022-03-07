@@ -1,1 +1,1 @@
-Mostly to mess around and appply what im learning. :)
+Mostly to mess around and apply what im learning. :)
